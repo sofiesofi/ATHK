@@ -17,7 +17,7 @@ Swedish lyrics to [Glory to Hong Kong (《願榮光歸香港》)](https://www.yo
 -   Vår rädsla och ångest går djupare
 -   Det vi tror på gör oss starkare
 -   Trots smärta och sår strider vi ändå
--   För en fri och ärofull Hongkong
+-   För ett fritt och ärofullt Hongkong
 
 ### B
 
