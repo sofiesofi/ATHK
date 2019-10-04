@@ -9,7 +9,7 @@ Swedish lyrics to [Glory to Hong Kong (《願榮光歸香港》)](https://www.yo
 
 -   De tårar som återigen faller
 -   Det vrede, det kval som alla känner
--   Se upp, sjunger upp så går vi framåt
+-   Se upp, sjung ut så går vi framåt
 -   Må frihet tillkomma Hongkong
 
 ### A2
