@@ -34,3 +34,32 @@ Swedish lyrics to [Glory to Hong Kong (《願榮光歸香港》)](https://www.yo
 -   Det har blivit en revolution i vår tid
 -   Demokrati och frihet ska leva i evighet
 -   Må ära vederfaras Hongkong
+
+
+## English translation
+
+### A1
+- The tears that are falling again
+- The anger and anguish which we all feel
+- Look up, speak out, so we go forward
+- May freedom come to Hong Kong
+
+### A2
+- Our fear and anguish go deeper
+- What we believe in makes us stronger
+- Despite pain and wounds we are still fighting
+- for a free and glorious Hong Kong
+
+### B
+- Stars fall during the dark night
+- In the mist trumpets and horns sound
+- We will get freedom
+- Together we stand
+- We will keep fighting till victory
+
+### A3
+- The dawn breaks
+- Liberate our Hong Kong
+- It has become a revolution of our times
+- Democracy and freedom will live eternally
+- May glory reign in Hong Kong
