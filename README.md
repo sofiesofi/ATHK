@@ -25,7 +25,7 @@ Swedish lyrics to [Glory to Hong Kong (《願榮光歸香港》)](https://www.yo
 -   Ut i dimma blås i trumpeter och horn
 -   Frihet kommer vi få
 -   Tillsammans vi står
--   Till sist, till segern ska vi kämpa på
+-   Till segern ska vi kämpa på
 
 ### A3
 
